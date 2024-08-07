@@ -8,11 +8,11 @@ Regarder Version France ➥ [Dune - Deuxième partie (2024) Film complet en lign
 
 Regarder Version English ➥ [Dune - Deuxième partie (2024) Film complet en ligne gratuit](https://cine.yeshq.biz/fr/693134)
 
-<p><a target="_blank" rel="noopener noreferrer" href="https://cine.yeshq.biz/fr/693134">
-        <picture>
-            <source srcset="https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/128.webp 128w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/256.webp 256w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/384.webp 384w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/512.webp 512w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/640.webp 640w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/768.webp 768w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/896.webp 896w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/1024.webp 1024w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/1152.webp 1152w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/1280.webp 1280w" type="image/webp" sizes="(max-width: 1280px) 100vw, 1280px"><img class="image_resized" style="width:50%;" src="https://ckbox.cloud/e70e929c95b9703b1ebd/assets/lm2HT5Mbu0U2/images/1280.jpeg" alt="" data-ckbox-resource-id="lm2HT5Mbu0U2" width="1280" height="720">
-        </picture>
-    </a></p>
+<figure class="image" data-ckbox-resource-id="P4bZxUtprwh9">
+    <picture>
+        <source srcset="https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/384.webp 384w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/768.webp 768w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/1152.webp 1152w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/1536.webp 1536w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/1920.webp 1920w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/2304.webp 2304w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/2688.webp 2688w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/3072.webp 3072w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/3456.webp 3456w,https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/3840.webp 3840w" sizes="(max-width: 3840px) 100vw, 3840px" type="image/webp"><img src="https://ckbox.cloud/e70e929c95b9703b1ebd/assets/P4bZxUtprwh9/images/3840.jpeg">
+    </picture>
+</figure>
 
 Où Peut-on regarder le film Dune - Deuxième partie ?
 
